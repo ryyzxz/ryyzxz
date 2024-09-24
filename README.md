@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ryyzxz
-- 👀 I’m interested in KONTOL DEVOLOPER
+- 👀 I’m interested in Web Designer
 - 🌱 I’m currently learning major in Computer and Networking
 - 💞️ I’m looking to new experience with Coding 
 - 📫 How to reach me @ryyzxz_
